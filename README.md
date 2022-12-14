@@ -20,3 +20,4 @@ Laurens, cherchye. “Efficiency and equity in private and public education: A n
 Russo, C. J., Thro, W. E., & Batz, F. M. (n.d.). Financing education: An overview of public school funding. eCommons. Retrieved November 25, 2022, from https://ecommons.udayton.edu/eda_fac_pub/185/
  Yun, John T; Reardon, Sean F. “Private School Racial Enrollments and Segregation” Harvard Civil Rights Project, 2002, pages 1-16, google scholar. Accessed 11/25/22
 Cherchye, L., De Witte, K., Ooghe, E., &amp; Nicaise, I. (2010). Efficiency and equity in private and public education: A nonparametric comparison. European Journal of Operational Research, 202(2), 563–573. https://doi.org/10.1016/j.ejor.2009.06.015 
+https://i.ytimg.com/vi/zmvbSoO0Qq4/maxresdefault.jpg
