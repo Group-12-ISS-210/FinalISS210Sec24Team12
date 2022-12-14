@@ -10,3 +10,4 @@ Hanson, Melanie. “U.S. Public Education Spending Statistics [2022]: Per Pupil 
 Kiersz, Andy. “The 15 US States with the Lowest College Graduation Rates.” Business Insider, Business Insider, https://www.businessinsider.com/us-states-with-the-lowest-college-graduation-rates-2019-6. 
 Malik, Shaukat and Volkwein, James Fredericks. “State Regulation And Administrative Flexibility At Public Universities.” Research in Higher Education, Vol. 38, No. 1, 1997. https://link.springer.com/content/pdf/10.1023/A:1024996511954.pdf, doi:[https://doi.org/10.1023/A:1024996511954]. Accessed: [25, November, 2022]
 “Population Estimate for 2021.” Rank List: States in Profile, https://www.statsamerica.org/sip/rank_list.aspx?rank_label=pop1. 
+https://educationdata.org/wp-content/uploads/1365/public-k-12-spending-per-student.webp
