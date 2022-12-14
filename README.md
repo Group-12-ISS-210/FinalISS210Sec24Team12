@@ -17,3 +17,5 @@ Epple, Dennis, et al. The us market for higher education: A general equilibrium 
 https://reader.elsevier.com/reader/sd/pii/0272775792900433?token=970BA55DE88DC7D8122B3BE0E73E979F7628EBB680614C49EA32CC12CA7152241379D1D2DE6CA9E60CB64C3293B8A170&originRegion=us-east-1&originCreation=20221209195135
 https://youtu.be/7O7BMa9XGXE
 Laurens, cherchye. “Efficiency and equity in private and public education: A nonparametric comparison.” journal of public economics,vol. 202,2016,563-573, https://www.sciencedirect.com/science/article/abs/pii/S0377221709004780, assessed[11/25/22]
+Russo, C. J., Thro, W. E., & Batz, F. M. (n.d.). Financing education: An overview of public school funding. eCommons. Retrieved November 25, 2022, from https://ecommons.udayton.edu/eda_fac_pub/185/
+ Yun, John T; Reardon, Sean F. “Private School Racial Enrollments and Segregation” Harvard Civil Rights Project, 2002, pages 1-16, google scholar. Accessed 11/25/22
