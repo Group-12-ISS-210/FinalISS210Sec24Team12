@@ -15,3 +15,4 @@ https://youtu.be/8Hg5FYZ5pFU
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fphotos%2Fschool-funding&psig=AOvVaw2T0lkd1fFT0Bp6D1g4MruC&ust=1671116766831000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCIiP9qSx-fsCFQAAAAAdAAAAABAI
 Epple, Dennis, et al. The us market for higher education: A general equilibrium analysis of state and private colleges and public funding policies. No. w19298. National Bureau of Economic Research, 2013.
 https://reader.elsevier.com/reader/sd/pii/0272775792900433?token=970BA55DE88DC7D8122B3BE0E73E979F7628EBB680614C49EA32CC12CA7152241379D1D2DE6CA9E60CB64C3293B8A170&originRegion=us-east-1&originCreation=20221209195135
+https://youtu.be/7O7BMa9XGXE
